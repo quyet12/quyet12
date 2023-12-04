@@ -1,4 +1,4 @@
-### Hi, I'm Quyet <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> -  [q][website] = Software Engineer + Youtuber 🌻  
+### Hi, I'm Quyet <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="25px"> -  [q][website] = S Engineer + Y 🌻  
 
 
 - 🔭 Passion in something ... (secret😊)
